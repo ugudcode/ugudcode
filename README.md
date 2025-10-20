@@ -8,7 +8,7 @@
 - 💞️ !(I’m looking to collaborate on)
 - 📫 I can be reached on discord or emailed 
 - 😄 Pronouns: he/him
-- ⚡ Fun fact: Did you know, that FTL travel would look like your on drugs?
+- ⚡ Fun fact: Did you know, that FTL travel would look crazy?
 
 <!---
 ugudcode/ugudcode is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
